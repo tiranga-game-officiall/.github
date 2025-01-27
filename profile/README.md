@@ -1,8 +1,10 @@
-# Tiranga Game
+# Tiranga Game: Download, Play & Enjoy with Exciting Features
 
 ## What Is the Tiranga Game?
 
 Did you know you can predict and match colours and win real money? If not, it’s your sign to try the **Tiranga Game**. Tiranga is a colour prediction game that allows you to enhance your colour knowledge and earn real money at the same time.
+
+![Tiranga Game](https://github.com/user-attachments/assets/ceba61f5-d979-4433-8c9f-e841cdd9642f)
 
 From daily quizzes to regular colour-based games, this game will keep you entertained. All you need to do is download the Tiranga Game APK on your device, register, and start playing. The best part? You can easily withdraw the money you earn to your digital wallets or bank account.
 
@@ -138,3 +140,5 @@ Tiranga app for Android
 Tiranga game earning potential
 
 Tiranga referral bonus
+
+
