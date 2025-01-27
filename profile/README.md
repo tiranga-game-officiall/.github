@@ -1,5 +1,8 @@
 # Tiranga Game: Download, Play & Enjoy with Exciting Features
 
+## Tiranga Game : 👉 [Tiranga Games](https://www.sikkim11.com/#/register?invitationCode=316164149930)👈
+## Tiranga Game : 👉 [Tiranga Games](https://www.sikkim11.com/#/register?invitationCode=316164149930)👈
+
 ## What Is the Tiranga Game?
 
 Did you know you can predict and match colours and win real money? If not, it’s your sign to try the **Tiranga Game**. Tiranga is a colour prediction game that allows you to enhance your colour knowledge and earn real money at the same time.
